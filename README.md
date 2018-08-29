@@ -8,7 +8,7 @@
 * best choice is probably catfish (hardy like carp but taste better) http://www.aquaponiclynx.com/channel-catfish-2
 * catfish in a barrel: https://www.youtube.com/watch?v=97V9m9YtH6Y
 * catfish in a barrel: https://www.youtube.com/watch?v=frM_8Y9L_BY
-
+* barrel planters: https://www.youtube.com/watch?v=BrL_il7Dk2s
 
 ## possible plants
 * lettuce and other greens
