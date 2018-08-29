@@ -16,6 +16,7 @@
 * pickerel weed
 
 ## mealworms
-* will assist with feeding the system (and also the lizards)
-* They need to be moved upstairs to prevent mold issues
-* However, there should be a smaller form factor option to avoid clutter
+* move them to the breaker corner
+* add a dehumidifier:
+* https://www.amazon.com/Eva-Dry-Improved-333-Renewable-Dehumidifier/dp/B000H0XFCS?SubscriptionId=AKIAILSHYYTFIVPWUY6Q&tag=duckduckgo-ffab-20&linkCode=xm2&camp=2025&creative=165953&creativeASIN=B000H0XFCS
+
